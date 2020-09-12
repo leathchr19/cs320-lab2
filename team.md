@@ -1,4 +1,5 @@
-Team Members:
+ Team Members:
 
 *Riley Fischer
-*TODO: others
+*John Harvey Kellogg <3
+
